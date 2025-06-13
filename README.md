@@ -1,7 +1,7 @@
 ## Hi there, I'm Clarisse!
 
 ### About me:
-- I'm about to be a freshman at the University of Chicago 🐦‍🔥
+- I'm a student at the University of Chicago, graduating 2028 🐦‍🔥
 - I have 2 dogs 🐶
 - I love eating food 🥟 🍜 🍨
 
