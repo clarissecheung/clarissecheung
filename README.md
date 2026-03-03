@@ -6,5 +6,5 @@
 - I love eating food 🥟 🍜 🍨
 
 ### Contact info:
-- Email: clarisse.cc@icloud.com or clarissec@uchicago.edu
+- Email: clarissec@uchicago.edu
   
